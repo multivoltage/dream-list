@@ -4,7 +4,7 @@
 # Possible goals
 ---
 
-## Take the aaf patent and become a professional paratrooper
+## ~~Take the aaf patent and become a professional paratrooper~~
 
 ## Buy a nice bike
 
