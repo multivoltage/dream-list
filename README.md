@@ -14,3 +14,5 @@
 # Maybe not possible
 ---
 ## Become rich
+
+# spent a day in isola like that in venice with animal https://www.youtube.com/watch?v=EpXg8JbFY5w
